@@ -3,9 +3,9 @@
 
 ## 官网注册入口
 
-[扬帆云官网注册入口](https://a.wwaann.com/?s=yangfancloud)
+[扬帆云官网注册入口](https://a.ggddxx.com/?s=yangfancloud)
 
-如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
+如果访问不了，可以[点击此处](https://ggddxx.com/)查看其他可用机场。
 
 ---
 
@@ -415,9 +415,9 @@
 
 ## 官方注册入口与使用提示
 
-[扬帆云官方注册入口](https://a.wwaann.com/?s=yangfancloud)
+[扬帆云官方注册入口](https://a.ggddxx.com/?s=yangfancloud)
 
-如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
+如果访问不了，可以[点击此处](https://ggddxx.com/)查看其他可用机场。
 
 ### 使用提示
 
